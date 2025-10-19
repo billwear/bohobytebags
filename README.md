@@ -15,7 +15,7 @@ They hold a surprising amount of stuff.  The first one has my identity cards, cr
 
 <img src="pocket-stash-bags-contents.jpg" width="100%" alt="pocket stash bags contents">
 
-My first actual project might be to make these even more tight by custom fitting them to the contents.
+My first actual restart project? Making these even more tight by custom fitting them to the contents, so that the contents are evenly distrubuted in a jeans pocket -- and stay there -- but aren't difficult to access. Call it [prototype 1](prototype-1.md).
 
 This site grows the same way the craft does: slowly, honestly, one skill at a time. I’m learning as I go — from first stitches to finer details — and I’m sharing that journey openly.
 
