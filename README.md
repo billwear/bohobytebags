@@ -11,6 +11,12 @@ I sewed these two little bags from fat quarters to solve a personal problem: too
 
 <img src="pocket-stash-bags.jpg" width="100%" alt="pocket stash bags">
 
+They hold a surprising amount of stuff.  The first one has my identity cards, credit cards, money, pills, spare key, and glasses-cleaning cloth.  The second has a first aid kit, a medium-sized swiss, and a first-aid guide:
+
+<img src="pocket-stash-bags-contents.jpg" width="100%" alt="pocket stash bags contents">
+
+My first actual project might be to make these even more tight by custom fitting them to the contents.
+
 This site grows the same way the craft does: slowly, honestly, one skill at a time. I’m learning as I go — from first stitches to finer details — and I’m sharing that journey openly.
 
 If you like what you see, come back often. The work will keep changing, refining, and evolving — just like any maker learning their way toward mastery.
