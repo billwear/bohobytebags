@@ -1,7 +1,7 @@
 # Boho Byte Bags
 ### About this site
 
-Every bag here starts as a small act of devotion — one person, one machine, one piece of fabric turning into something useful and beautiful.
+Every bag here starts as a small act of devotion — one person, one machine, fat quarters turning into something useful and beautiful.
 
 I design and sew boho-inspired tech cases and carry goods that blend color, texture, and purpose. Each piece is built to hold not just your devices, but a bit of your everyday rhythm — the way you move, work, and create.
 
